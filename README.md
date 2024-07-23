@@ -1,1 +1,2 @@
-# Final_task_c_DE_step6
+Stoliarov Maksim Sergeevich
+My hobbies: reading books, listening to podcasts about AI, walking
